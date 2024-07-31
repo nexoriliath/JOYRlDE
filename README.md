@@ -5,5 +5,5 @@
 </div>
 
 <p align="center">
-hey freakies... my rentry is currently still a wip since i wanted 2 make a new one lmao
+wont be online a whole lot cayse im busy with school!! ^_^ add me on dc maybe (@iidiorian)
 </p>
