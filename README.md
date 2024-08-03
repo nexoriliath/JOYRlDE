@@ -5,5 +5,5 @@
 </div>
 
 <p align="center">
-wont be online a whole lot cayse im busy with school!! ^_^ add me on dc maybe (@iidiorian)
+wont be active much on pt and other socials .. probably only entirely online on weekends/breaks..?
 </p>
