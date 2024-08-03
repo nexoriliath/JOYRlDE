@@ -5,5 +5,5 @@
 </div>
 
 <p align="center">
-wont be active much on pt and other socials .. probably only entirely online on weekends/breaks..?
+wont be active much on pt and other socials .. probably only entirely online on weekends/breaks..? <br> @iidiorian is my discord >_<
 </p>
